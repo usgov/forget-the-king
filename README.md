@@ -23,7 +23,7 @@ He has refused to pass other laws for the accommodation of large districts of pe
 
 He has called together legislative bodies at places unusual, uncomfortable, and distant from the depository of their public records, for the sole purpose of fatiguing them into compliance with his measures.
 
-He has dissolved representative houses repeatedly & continually for opposing with manly firmness his invasions on the rights of the people.
+He has dissolved representative houses repeatedly, for opposing with manly firmness his invasions on the rights of the people.
 
 He has refused for a long time after such dissolutions to cause others to be elected, whereby the legislative powers, incapable of annihilation, have returned to the people at large for their exercise, the state remaining in the meantime exposed to all the dangers of invasion from without & convulsions within.
 
