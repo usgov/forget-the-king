@@ -53,7 +53,7 @@ For depriving us of the benefits of trial by jury:
 
 For transporting us beyond seas to be tried for pretended offences:
 
-For abolishing the free system of English laws in a neighboring province, establishing therein an arbitrary government, and enlarging its boundaries, so as to render it at once an example and fit instrument for introducing the same absolute rule into these states:
+For abolishing the free system of English laws in a neighboring province, establishing therein an arbitrary government, and enlarging its boundaries, so as to render it at once an example and fit instrument for introducing the same absolute rule into these Colonies:
 
 For taking away our charters, abolishing our most valuable laws, and altering fundamentally the forms of our governments:
 
