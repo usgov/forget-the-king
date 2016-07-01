@@ -33,7 +33,7 @@ He has suffered the administration of justice totally to cease in some of these 
 
 He has made our judges dependant on his will alone, for the tenure of their offices, & the amount & paiment of their salaries.
 
-He has erected a multitude of new offices by a self assumed power and sent hither swarms of new officers to harass our people and eat out their substance.
+He has erected a multitude of new offices, and sent hither swarms of officers to harass our people and eat out their substance.
 
 He has kept among us in times of peace standing armies and ships of war without the consent of our legislatures.
 
