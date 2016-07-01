@@ -7,7 +7,7 @@ that all men are created equal,
 that they are endowed by their creator with inherent and inalienable rights,
 that among these are life, liberty, & the pursuit of happiness,
 that to secure these rights, governments are instituted among men, deriving their just powers from the consent of the governed,
-that whenever any form of government becomes destructive of these ends, it is the right of the people to alter or abolish it, & to institute new government, laying it’s foundation on such principles, & organizing it’s powers in such form, as to them shall seem most likely to effect their safety & happiness.
+that whenever any form of government becomes destructive of these ends, it is the right of the people to alter or abolish it, & to institute new government, laying its foundation on such principles, & organizing its powers in such form, as to them shall seem most likely to effect their safety & happiness.
 Prudence indeed will dictate that governments long established should not be changed for light & transient causes,
 and accordingly all experience hath shown that mankind are more disposed to suffer while evils are sufferable, than to right themselves by abolishing the forms to which they are accustomed.
 But when a long train of abuses & usurpations begun at a distinguished period and pursuing invariably the same object, evinces a design to reduce them under absolute despotism, it is their right, it is their duty to throw off such government, & to provide new guards for their future security.
@@ -53,7 +53,7 @@ For depriving us of the benefits of trial by jury
 
 For transporting us beyond seas to be tried for pretended offences:
 
-For abolishing the free system of English laws in a neighboring province, establishing therein an arbitrary government, and enlarging it’s boundaries, so as to render it at once an example and fit instrument for introducing the same absolute rule into these states:
+For abolishing the free system of English laws in a neighboring province, establishing therein an arbitrary government, and enlarging its boundaries, so as to render it at once an example and fit instrument for introducing the same absolute rule into these states:
 
 For taking away our charters, abolishing our most valuable laws, and altering fundamentally the forms of our governments:
 
