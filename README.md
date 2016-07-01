@@ -5,6 +5,7 @@ When in the Course of human Events it becomes necessary for one People to dissol
 We hold these truths to be self-evident:
 that all men are created equal,
 that they are endowed by their Creator with certain unalienable Rights,
+that among these are Life, Liberty and the pursuit of Happiness,
 that to secure these rights, governments are instituted among men, deriving their just powers from the consent of the governed,
 that whenever any form of government becomes destructive of these ends, it is the right of the people to alter or abolish it, & to institute new government, laying its foundation on such principles, & organizing its powers in such form, as to them shall seem most likely to effect their safety & happiness.
 Prudence indeed will dictate that governments long established should not be changed for light & transient causes,
