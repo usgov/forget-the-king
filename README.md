@@ -63,7 +63,7 @@ He has abdicated government here, by declaring us out of his protection and wagi
 
 He has plundered our seas, ravaged our coasts, burnt our towns, & destroyed the lives of our people.
 
-He is at this time transporting large armies of foreign mercenaries to compleat the works of death, desolation & tyranny already begun with circumstanccs of cruelty and perfidy unworthy the head of a civilized nation.
+He is at this time transporting large armies of foreign mercenaries to compleat the works of death, desolation, and tyranny, already begun with circumstances of Cruelty & Perfidy scarcely paralleled in the most barbarous ages, and totally unworthy the Head of a civilized nation.
 
 He has constrained our fellow citizens taken captive on the high seas to bear arms against their country, to become the executioners of their friends & brethren, or to fall themselves by their hands.
 
