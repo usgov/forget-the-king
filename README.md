@@ -43,13 +43,13 @@ He has combined with others to subject us to a jurisdiction foreign to our const
 
 For quartering large bodies of armed troops among us:
 
-For protecting them by a mock-trial from punishment for any murders which they should commit on the inhabitants of these states
+For protecting them by a mock-trial from punishment for any murders which they should commit on the inhabitants of these states:
 
 For cutting off our trade with all parts of the world:
 
 For imposing taxes on us without our consent:
 
-For depriving us of the benefits of trial by jury
+For depriving us of the benefits of trial by jury:
 
 For transporting us beyond seas to be tried for pretended offences:
 
