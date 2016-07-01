@@ -67,11 +67,9 @@ He is at this time transporting large armies of foreign mercenaries to compleat 
 
 He has constrained our fellow citizens taken captive on the high seas to bear arms against their country, to become the executioners of their friends & brethren, or to fall themselves by their hands.
 
-He has endeavored to bring on the inhabitants of our frontiers the merciless Indian savages, whose known rule of warfare is an undistinguished destruction of all ages, sexes, & conditions of existence.
+He has excited domestic insurrections amongst us, and has endeavoured to bring on the inhabitants of our frontiers, the merciless Indian Savages, whose known rule of warfare is an undistinguished destruction of all ages, sexes and conditions.
 
 In every stage of these Oppressions We have Petitioned for Redress in the most humble terms: Our repeated Petitions have been answered only by repeated injury. A Prince, whose character is thus marked by every act which may define a Tyrant, is unfit to be the ruler of a free people.
-
-He has incited treasonable insurrections of our fellow-citizens, with the allurements of forfeiture & confiscation of our property.
 
 He has waged cruel war against human nature itself, violating its most sacred rights of life and liberty in the persons of a distant people who never offended him, captivating & carrying them into slavery in another hemisphere, or to incur miserable death in their transportation thither.
 This piratical warfare, the opprobium of INFIDEL Powers, is the warfare of the CHRISTIAN king of Great Britain.
