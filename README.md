@@ -69,15 +69,13 @@ He has constrained our fellow citizens taken captive on the high seas to bear ar
 
 He has endeavored to bring on the inhabitants of our frontiers the merciless Indian savages, whose known rule of warfare is an undistinguished destruction of all ages, sexes, & conditions of existence.
 
+In every stage of these Oppressions We have Petitioned for Redress in the most humble terms: Our repeated Petitions have been answered only by repeated injury. A Prince, whose character is thus marked by every act which may define a Tyrant, is unfit to be the ruler of a free people.
+
 He has incited treasonable insurrections of our fellow-citizens, with the allurements of forfeiture & confiscation of our property.
 
 He has waged cruel war against human nature itself, violating its most sacred rights of life and liberty in the persons of a distant people who never offended him, captivating & carrying them into slavery in another hemisphere, or to incur miserable death in their transportation thither.
 This piratical warfare, the opprobium of INFIDEL Powers, is the warfare of the CHRISTIAN king of Great Britain.
 Determined to keep open a market where MEN should be bought & sold, he has prostituted his negative for suppressing every legislative attempt to prohibit or to restrain this execrable commerce. And that this assemblage of horrors might want no fact of distinguished die, he is now exciting those very people to rise in arms among us, and to purchase that liberty of which he has deprived them, by murdering the people on whom he also obtruded them: thus paying off former crimes committed against the LIBERTIES of one people, with crimes which he urges them to commit against the LIVES of another.
-
-In every stage of these oppressions we have petitioned for redress in the most humble terms: our repeated petitions have been answered only by repeated injuries.
-
-A prince whose character is thus marked by every act which may define a tyrant is unfit to be the ruler of a people who mean to be free. Future ages will scarcely believe that the hardiness of one man adventured, within the short compass of twelve years only, to lay a foundation so broad & so undisguised for tyranny over a people fostered & fixed in principles of freedom.
 
 Nor have we been wanting in attentions to our British brethren.
 We have warned them from time to time of attempts by their legislature to extend a jurisdiction over these our states.
