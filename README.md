@@ -1,63 +1,63 @@
 # A Declaration by the Representatives of the UNITED STATES OF AMERICA, in General Congress assembled.
 
-WHEN in the Course of human Events it becomes necessary for one People to dissolve the Political Bands which have connected them with another, and to assume among the Powers of the Earth the separate & equal Station to which the Laws of Nature and of Nature’s God entitle them, a decent Respect to the Opinions of Mankind requires that they should declare the causes which impel them to the Separation.
+When in the Course of human Events it becomes necessary for one People to dissolve the Political Bands which have connected them with another, and to assume among the Powers of the Earth the separate & equal Station to which the Laws of Nature and of Nature’s God entitle them, a decent Respect to the Opinions of Mankind requires that they should declare the causes which impel them to the Separation.
 
-WE hold these Truths to be self-evident:
-that all Men are created equal;
-that they are endowed by their creator with inherent and inalienable rights;
-that among these are life, liberty, & the pursuit of happiness:
-that to secure these rights, governments are instituted among men, deriving their just powers from the consent of the governed;
+We hold these truths to be self-evident:
+that all men are created equal,
+that they are endowed by their creator with inherent and inalienable rights,
+that among these are life, liberty, & the pursuit of happiness,
+that to secure these rights, governments are instituted among men, deriving their just powers from the consent of the governed,
 that whenever any form of government becomes destructive of these ends, it is the right of the people to alter or abolish it, & to institute new government, laying it’s foundation on such principles, & organizing it’s powers in such form, as to them shall seem most likely to effect their safety & happiness.
-Prudence indeed will dictate that governments long established should not be changed for light & transient causes;
+Prudence indeed will dictate that governments long established should not be changed for light & transient causes,
 and accordingly all experience hath shown that mankind are more disposed to suffer while evils are sufferable, than to right themselves by abolishing the forms to which they are accustomed.
 But when a long train of abuses & usurpations begun at a distinguished period and pursuing invariably the same object, evinces a design to reduce them under absolute despotism, it is their right, it is their duty to throw off such government, & to provide new guards for their future security.
 Such has been the patient sufferance of these colonies; & such is now the necessity which constrains them to expunge their former systems of government.
 The history of the present king of Great Britain is a history of unremitting injuries & usurpations, among which appears no solitary fact to contradict the uniform tenor of the rest but all have in direct object the establishment of an absolute tyranny over these states.
 To prove this let facts be submitted to a candid world for the truth of which we pledge a faith yet unsullied by falsehood.
 
-HE has refused his assent to laws the most wholesome & necessary for the public good.
+He has refused his assent to laws the most wholesome & necessary for the public good.
 
-HE has forbidden his governors to pass laws of immediate & pressing importance, unless suspended in their operation till his assent should be obtained; & when so suspended, he has utterly neglected to attend to them.
+He has forbidden his governors to pass laws of immediate & pressing importance, unless suspended in their operation till his assent should be obtained; & when so suspended, he has utterly neglected to attend to them.
 
-HE has refused to pass other laws for the accommodation of large districts of people, unless those people would relinquish the right of representation in the legislature, a right inestimable to them, & formidable to tyrants only.
+He has refused to pass other laws for the accommodation of large districts of people, unless those people would relinquish the right of representation in the legislature, a right inestimable to them, & formidable to tyrants only.
 
-HE has called together legislative bodies at places unusual, uncomfortable, and distant from the depository of their public records, for the sole purpose of fatiguing them into compliance with his measures.
+He has called together legislative bodies at places unusual, uncomfortable, and distant from the depository of their public records, for the sole purpose of fatiguing them into compliance with his measures.
 
-HE has dissolved representative houses repeatedly & continually for opposing with manly firmness his invasions on the rights of the people.
+He has dissolved representative houses repeatedly & continually for opposing with manly firmness his invasions on the rights of the people.
 
-HE has refused for a long time after such dissolutions to cause others to be elected, whereby the legislative powers, incapable of annihilation, have returned to the people at large for their exercise, the state remaining in the meantime exposed to all the dangers of invasion from without & convulsions within.
+He has refused for a long time after such dissolutions to cause others to be elected, whereby the legislative powers, incapable of annihilation, have returned to the people at large for their exercise, the state remaining in the meantime exposed to all the dangers of invasion from without & convulsions within.
 
-HE has endeavored to prevent the population of these states; for that purpose obstructing the laws for naturalization of foreigners, refusing to pass others to encourage their migrations hither, & raising the conditions of new appropriations of lands.
+He has endeavored to prevent the population of these states; for that purpose obstructing the laws for naturalization of foreigners, refusing to pass others to encourage their migrations hither, & raising the conditions of new appropriations of lands.
 
-HE has suffered the administration of justice totally to cease in some of these states refusing his assent to laws for establishing judiciary powers.
+He has suffered the administration of justice totally to cease in some of these states refusing his assent to laws for establishing judiciary powers.
 
-HE has made our judges dependant on his will alone, for the tenure of their offices, & the amount & paiment of their salaries.
+He has made our judges dependant on his will alone, for the tenure of their offices, & the amount & paiment of their salaries.
 
-HE has erected a multitude of new offices by a self assumed power and sent hither swarms of new officers to harass our people and eat out their substance.
+He has erected a multitude of new offices by a self assumed power and sent hither swarms of new officers to harass our people and eat out their substance.
 
-HE has kept among us in times of peace standing armies and ships of war without the consent of our legislatures.
+He has kept among us in times of peace standing armies and ships of war without the consent of our legislatures.
 
-HE has affected to render the military independent of, & superior to the civil power.
+He has affected to render the military independent of, & superior to the civil power.
 
-HE has combined with others to subject us to a jurisdiction foreign to our constitutions & unacknowledged by our laws, giving his assent to their acts of pretended legislation:
+He has combined with others to subject us to a jurisdiction foreign to our constitutions & unacknowledged by our laws, giving his assent to their acts of pretended legislation:
 
-FOR quartering large bodies of armed troops among us:
+For quartering large bodies of armed troops among us:
 
-FOR protecting them by a mock-trial from punishment for any murders which they should commit on the inhabitants of these states
+For protecting them by a mock-trial from punishment for any murders which they should commit on the inhabitants of these states
 
-FOR cutting off our trade with all parts of the world:
+For cutting off our trade with all parts of the world:
 
-FOR imposing taxes on us without our consent:
+For imposing taxes on us without our consent:
 
-FOR depriving us of the benefits of trial by jury
+For depriving us of the benefits of trial by jury
 
-FOR transporting us beyond seas to be tried for pretended offences:
+For transporting us beyond seas to be tried for pretended offences:
 
-FOR abolishing the free system of English laws in a neighboring province, establishing therein an arbitrary government, and enlarging it’s boundaries, so as to render it at once an example and fit instrument for introducing the same absolute rule into these states:
+For abolishing the free system of English laws in a neighboring province, establishing therein an arbitrary government, and enlarging it’s boundaries, so as to render it at once an example and fit instrument for introducing the same absolute rule into these states:
 
-FOR taking away our charters, abolishing our most valuable laws, and altering fundamentally the forms of our governments:
+For taking away our charters, abolishing our most valuable laws, and altering fundamentally the forms of our governments:
 
-FOR suspending our own legislatures, & declaring themselves invested with power to legislate for us in allcases whatsoever.
+For suspending our own legislatures, & declaring themselves invested with power to legislate for us in allcases whatsoever.
 
 He has abdicated government here withdrawing his governors, and declaring us out of his allegiance & protection.
 
