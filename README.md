@@ -7,15 +7,15 @@ that all men are created equal,
 that they are endowed by their Creator with certain unalienable Rights,
 that among these are Life, Liberty and the pursuit of Happiness,
 that to secure these rights, governments are instituted among men, deriving their just powers from the consent of the governed,
-that whenever any form of government becomes destructive of these ends, it is the right of the people to alter or abolish it, & to institute new government, laying its foundation on such principles, & organizing its powers in such form, as to them shall seem most likely to effect their safety & happiness.
-Prudence indeed will dictate that governments long established should not be changed for light & transient causes,
-and accordingly all experience hath shown that mankind are more disposed to suffer while evils are sufferable, than to right themselves by abolishing the forms to which they are accustomed.
-But when a long train of abuses & usurpations begun at a distinguished period and pursuing invariably the same object, evinces a design to reduce them under absolute despotism, it is their right, it is their duty to throw off such government, & to provide new guards for their future security.
-Such has been the patient sufferance of these colonies; & such is now the necessity which constrains them to expunge their former systems of government.
-The history of the present king of Great Britain is a history of unremitting injuries & usurpations, among which appears no solitary fact to contradict the uniform tenor of the rest but all have in direct object the establishment of an absolute tyranny over these states.
-To prove this let facts be submitted to a candid world for the truth of which we pledge a faith yet unsullied by falsehood.
+that whenever any form of government becomes destructive of these ends, it is the right of the people to alter or to abolish it, & to institute new government, laying its foundation on such principles & organizing its powers in such form, as to them shall seem most likely to effect their Safety and Happiness.
+Prudence, indeed, will dictate that Governments long established should not be changed for light and transient causes,
+and accordingly all experience hath shewn that mankind are more disposed to suffer, while evils are sufferable than to right themselves by abolishing the forms to which they are accustomed.
+But when a long train of abuses & usurpations, pursuing invariably the same Object evinces a design to reduce them under absolute Despotism, it is their right, it is their duty, to throw off such Government, and to provide new Guards for their future security.
+Such has been the patient sufferance of these Colonies; and such is now the necessity which constrains them to alter their former Systems of Government.
+The history of the present King of Great Britain is a history of repeated injuries and usurpations, all having in direct object the establishment of an absolute Tyranny over these States.
+To prove this, let Facts be submitted to a candid world.
 
-He has refused his assent to laws the most wholesome & necessary for the public good.
+He has refused his assent to laws, the most wholesome & necessary for the public good.
 
 He has forbidden his governors to pass laws of immediate & pressing importance, unless suspended in their operation till his assent should be obtained; & when so suspended, he has utterly neglected to attend to them.
 
