@@ -1,4 +1,4 @@
-# Draft Cconstitution for Virginia 1776
+# Draft Constitution for Virginia 1776
 
 June, 1776.
 
@@ -34,7 +34,7 @@ by which several acts of misrule the said George Guelf has forfeited the kingly 
 
 And forasmuch as the public liberty may be more certainly secured by abolishing an office which all experience hath shewn to be inveterately inimical thereto *or which* and it will thereupon become further necessary to re-establish such ancient principles as are friendly to the rights of the people and to declare certain others which may co-operate with and fortify the same in future.
 
-Be it therefore enacted by the authority of the people that the said, George Guelf be, and he hereby is deposed from the kingly office within this government and absolutely divested of all it's rights, powers, and prerogatives: and that he and his descendants and all persons acting by or through him, and all other persons whatsoever shall be and forever remain incapable of the same: and that the said office shall henceforth cease and never more either in name or substance be re-established within this colony.
+Be it therefore enacted by the authority of the people that the said, George Guelf be, and he hereby is deposed from the kingly office within this government and absolutely divested of all its rights, powers, and prerogatives: and that he and his descendants and all persons acting by or through him, and all other persons whatsoever shall be and forever remain incapable of the same: and that the said office shall henceforth cease and never more either in name or substance be re-established within this colony.
 
 And be it further enacted by the authority aforesaid that the following fundamental laws and principles of government shall henceforth be established.
 
