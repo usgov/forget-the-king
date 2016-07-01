@@ -35,7 +35,7 @@ He has made our judges dependant on his will alone, for the tenure of their offi
 
 He has erected a multitude of new offices, and sent hither swarms of officers to harass our people and eat out their substance.
 
-He has kept among us in times of peace standing armies and ships of war without the consent of our legislatures.
+He has kept among us, in times of peace, standing armies without the consent of our legislatures.
 
 He has affected to render the military independent of, & superior to the civil power.
 
