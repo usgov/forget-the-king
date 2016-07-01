@@ -49,7 +49,7 @@ For cutting off our trade with all parts of the world:
 
 For imposing taxes on us without our consent:
 
-For depriving us of the benefits of trial by jury:
+For depriving us in many cases, of the benefit of Trial by Jury:
 
 For transporting us beyond seas to be tried for pretended offences:
 
