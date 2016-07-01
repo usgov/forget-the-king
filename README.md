@@ -59,7 +59,7 @@ For taking away our charters, abolishing our most valuable laws, and altering fu
 
 For suspending our own legislatures, & declaring themselves invested with power to legislate for us in allcases whatsoever.
 
-He has abdicated government here withdrawing his governors, and declaring us out of his allegiance & protection.
+He has abdicated government here, by declaring us out of his protection and waging War against us.
 
 He has plundered our seas, ravaged our coasts, burnt our towns, & destroyed the lives of our people.
 
