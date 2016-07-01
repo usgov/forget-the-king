@@ -29,7 +29,7 @@ He has refused for a long time after such dissolutions to cause others to be ele
 
 He has endeavored to prevent the population of these states; for that purpose obstructing the laws for naturalization of foreigners, refusing to pass others to encourage their migrations hither, & raising the conditions of new appropriations of lands.
 
-He has suffered the administration of justice totally to cease in some of these states refusing his assent to laws for establishing judiciary powers.
+He has obstructed the administration of justice by refusing his assent to laws for establishing judiciary powers.
 
 He has made our judges dependant on his will alone, for the tenure of their offices, & the amount & paiment of their salaries.
 
