@@ -1,4 +1,5 @@
-# A Declaration by the Representatives of the UNITED STATES OF AMERICA, in General Congress assembled.
+# IN CONGRESS, JULY 4, 1776
+# The unanimous Declaration of the thirteen united States of America
 
 When in the Course of human Events it becomes necessary for one People to dissolve the Political Bands which have connected them with another, and to assume among the Powers of the Earth the separate & equal Station to which the Laws of Nature and of Nature’s God entitle them, a decent Respect to the Opinions of Mankind requires that they should declare the causes which impel them to the Separation.
 
